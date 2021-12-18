@@ -1,3 +1,1 @@
 ## Hello there!
-
-### About Me
