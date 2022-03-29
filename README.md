@@ -5,9 +5,14 @@
 Little closer, close enough,
 I'm a loser, loosen up,
 Setting free, must be tough"
-  -Kevin Parker
+  -Tame Impala
   
   
 # Welcome
 
-Hey guys and girls, chairs and tables. Take a look around, I love to share the projects I'm working on. if you'd like to collab on anything, Hit me up with an email at dillanthomas88@gmail.com and I'll get back to you as soon as possible. Cheers!
+Hey Everyone!
+
+   Take a look around, I love to share the projects I'm working on. if you'd like to collab on anything or would just like to connect, Hit me up with an email at dillanthomas88@gmail.com and I'll get back to you as soon as possible. Cheers!
+   
+   
+   [LinkedIn](https://www.linkedin.com/in/dillanthomasmansor/)
