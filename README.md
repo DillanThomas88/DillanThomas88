@@ -17,4 +17,4 @@ Hey Everyone!
    
 [- LinkedIn -](https://www.linkedin.com/in/dillanthomasmansor/)
    
-- dillanthomas88@gmail.com -
+dillanthomas88@gmail.com
