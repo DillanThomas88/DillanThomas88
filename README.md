@@ -15,6 +15,6 @@ Hey Everyone!
    Take a look around, I love to share the projects I'm working on. if you'd like to collab on anything or would just like to connect, Hit me up with an email or with a message on LInkeIn and I'll get back to you as soon as possible. Cheers!
    
    
-   [LinkedIn](https://www.linkedin.com/in/dillanthomasmansor/)
+Social: [LinkedIn](https://www.linkedin.com/in/dillanthomasmansor/)
    
-   Email: dillanthomas88@gmail.com
+Email: dillanthomas88@gmail.com
