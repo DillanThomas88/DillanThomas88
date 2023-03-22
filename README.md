@@ -3,6 +3,4 @@
 ![](https://i0.wp.com/5ergiveaways.com/wp-content/uploads/2019/11/Twitter-Cover.png?fit=1500%2C500&ssl=1)
 
    
-[- LinkedIn -](https://www.linkedin.com/in/dillanthomasmansor/)
-   
-dillanthomas88@gmail.com
+[LinkedIn](https://www.linkedin.com/in/dillanthomasmansor/) dillanthomas88@gmail.com
