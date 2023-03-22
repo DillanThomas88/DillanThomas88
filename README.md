@@ -1,4 +1,4 @@
-![]([./abstract2.jpg](https://i.redd.it/tv6itpuuie051.png))
+![](https://i.redd.it/tv6itpuuie051.png)
 
 
 "Will I be known and loved,
