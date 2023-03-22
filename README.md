@@ -1,4 +1,4 @@
-![](https://live.staticflickr.com/7430/27172363571_a522a5dec6_b.jpg)
+![](https://i0.wp.com/5ergiveaways.com/wp-content/uploads/2019/11/Twitter-Cover.png?fit=1500%2C500&ssl=1)
 
 "Will I be known and loved,
 Little closer, close enough,
