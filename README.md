@@ -34,7 +34,7 @@ Star Grab is a color matching and math sums game to play with your friends or al
 4. Finally, points will be added to your overall score from stars tiles only. ex. a tile with a value of 12 and has a star, will give you 12 points.
 
 
-check it out [Star Grab]([https://dillanthomas88.github.io/StarGrab/](https://apps.apple.com/us/app/stargrab/id6470140060?platform=iphone)https://apps.apple.com/us/app/stargrab/id6470140060?platform=iphone]) in iOS Store!
+check it out [Star Grab](https://dillanthomas88.github.io/StarGrab/](https://apps.apple.com/us/app/stargrab/id6470140060?platform=iphone)https://apps.apple.com/us/app/stargrab/id6470140060?platform=iphone) in iOS Store!
 <hr>
 
 ![](./public/IMG_0801%20(1).jpg)
