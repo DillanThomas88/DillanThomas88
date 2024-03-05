@@ -37,4 +37,4 @@ Star Grab is a color matching and math sums game to play with your friends or al
 check it out [Star Grab](https://apps.apple.com/us/app/stargrab/id6470140060?platform=iphone) in iOS Store!
 <hr>
 
-![](./public/IMG_0801%20(1).jpg)
+![](IMG_0801%20(1).jpg)
